@@ -1,0 +1,5 @@
+- Hi, I’m @BardenLull
+- I’m interested in CyberSecurity
+- I’m currently learning Python and Network+
+- I’m looking to collaborate on things I find intresting, right now I am busy grinding TestOut for the Comptia Network+ test
+- How to reach me bradenlull2021@gmail.com, I will rarly respond and please don't fill up my inbox. Other than that I think im ok to talk to but don't expect me to know anything im still new
